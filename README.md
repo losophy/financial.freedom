@@ -1,1 +1,1 @@
-# 财务自由
+# financial.freedom
